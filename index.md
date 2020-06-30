@@ -8,3 +8,4 @@ Alabama Moon – Abenteuer Leben ist ein US-amerikanischer Familienfilm von Tim 
 ## Zitat
 > Hals Vater: Gibt es einen Ort, wo Du nicht leben möchtest?
 > Moon: In Pinson (das Jugendheim), im Gefängnis. Eigentlich überall, wo sie einen einsperren. Da krampft sich alles in mir zusammen, als hätte mir jemand faules Wasser zu trinken gegeben.
+<img src="https://iv1.lisimg.com/image/3474644/584full-alabama-moon-screenshot.jpg"/>
